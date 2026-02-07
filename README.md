@@ -1,2 +1,2 @@
 ### Self-taught delusionist
-#### building adobe premiere extensions you'll love
+#### building delusions you'll love
