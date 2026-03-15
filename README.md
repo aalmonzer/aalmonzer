@@ -1,2 +1,2 @@
 ### Self-taught delusionist
-#### building delusions you'll love
+#### I help video editors work faster by creating niche tools to speedup their workflow
